@@ -37,7 +37,7 @@ Teaching Experience
 Awards & Fellowships
 ======
 
-- **Fellow, Red Clay Writing Project (National Writing Project)**, UGA Mary Frances Early College of Education (Summer 2026)
+- **Fellow, [Red Clay Writing Project](https://coe.uga.edu/outreach/programs/red-clay-writing-project/) (National Writing Project)**, UGA Mary Frances Early College of Education (2026)
 
 - **Merit Scholarship**, Minzu University of China
 

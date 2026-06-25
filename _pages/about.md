@@ -13,6 +13,14 @@ I am a Ph.D. student in the [Mary Frances Early College of Education](https://co
 My research focuses on the construction and negotiation of teachers' professional identities, resilience, and creativity in the era of AI: how teachers come to understand and navigate who they are as educators across their classrooms, schools, and broader professional communities.
 
 
+Conference Presentations
+======
+
+- Zhang, H., Chen, Y., & Wang, J. (2024). The Social Role Theory and the "Student-Centered" Teacher-Student Community Interaction. Paper presented at the 4th Graduate Forum at Tianjin University of Technology, Tianjin, China.
+
+- Chen, Y. (2022). Analyzing Cultural Adaptation Strategies of Migrant Groups through the Education of Second-Generation Migrants - A Case Study Based on Fieldwork in Tianjin. Paper presented at the Lecture Series on Migration Research from Anthropological Perspective, Nanning, Guangxi Zhuang Autonomous Region, China.
+
+
 
 Teaching Experience
 ======
@@ -26,14 +34,12 @@ Teaching Experience
 - **Junior High School Social Studies, English & Homeroom Teacher**, Grades 7–9, Pingdingshan, Henan Province, China (Fall 2019 – Summer 2022)
 
 
-
 Awards & Fellowships
 ======
 
 - **Fellow, Red Clay Writing Project (National Writing Project)**, UGA Mary Frances Early College of Education (Summer 2026)
 
 - **Merit Scholarship**, Minzu University of China
-
 
 
 Related Volunteer Experience

@@ -39,10 +39,7 @@ Awards & Fellowships
 Related Volunteer Experience
 ======
 
-- **Graduate Volunteer, Educational Assistance Program**, Red Apple Public Welfare (RAPW), Chengdu, China (Aug. 2024)
-
-
-- **Graduate Student Representative, Career Preparation Project for New Teachers**, Wensu County, Aksu Prefecture, Xinjiang Uygur Autonomous Region, China (Jun. 2023 – Aug. 2023)
+- **Graduate Volunteer, Career Preparation Project for New Teachers**, Wensu County, Aksu Prefecture, Xinjiang Uygur Autonomous Region, China (Jun. 2023 – Aug. 2023)
 
 
 - **New Teacher Advisor, New Teacher Support Program**, A Junior High School, Henan Province, China (Aug. 2020)

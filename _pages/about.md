@@ -23,7 +23,7 @@ Teaching Experience
 - **Teaching Assistant**, Minzu University of China, Beijing, China (Fall 2023, Spring 2024)
 
 
-- **Social Studies, English & Homeroom Teacher**, Grades 7–9, A Junior High School, Henan Province, China (Fall 2019 – Summer 2022)
+- **Junior High School Social Studies, English & Homeroom Teacher**, Grades 7–9, Pingdingshan, Henan Province, China (Fall 2019 – Summer 2022)
 
 
 
@@ -39,8 +39,8 @@ Awards & Fellowships
 Related Volunteer Experience
 ======
 
-- **Graduate Volunteer, Career Preparation Project for New Teachers**, Wensu County, Aksu Prefecture, Xinjiang Uygur Autonomous Region, China (Jun. 2023 – Aug. 2023)
+- **Graduate Volunteer, Career Preparation Project for New Teachers**, Wensu County, Aksu Prefecture, Xinjiang Uygur Autonomous Region, China (Summer 2023)
 
 
-- **New Teacher Advisor, New Teacher Support Program**, A Junior High School, Henan Province, China (Aug. 2020)
+- **New Teacher Advisor, Junior High School New Teacher Support Program**, Pingdingshan, Henan Province, China (Summer 2020)
 

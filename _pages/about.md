@@ -8,7 +8,7 @@ redirect_from:
   - /about.html
 ---
 
-I am a Ph.D. student in the [Mary Frances Early College of Education](https://coe.uga.edu/) at [The University of Georgia (UGA)](https://www.uga.edu/), advised by [Dr. Gayle Andrews](https://people.coe.uga.edu/gayle-andrews/). Before that, I received a Master's Degree in Sociology from Minzu University of China (Beijing).
+I am a Ph.D. student in the [Department of Educational Theory and Practice](https://coe.uga.edu/directory/educational-theory-and-practice/), [Mary Frances Early College of Education](https://coe.uga.edu/), [The University of Georgia (UGA)](https://www.uga.edu/), with an emphasis in Teacher Education, advised by [Dr. Gayle Andrews](https://people.coe.uga.edu/gayle-andrews/). Before that, I received a Master's Degree in Sociology from Minzu University of China (Beijing).
 
 My research focuses on the construction and negotiation of teachers' professional identities, resilience, and creativity in the era of AI: how teachers come to understand and navigate who they are as educators across their classrooms, schools, and broader professional communities.
 
